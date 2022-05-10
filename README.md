@@ -1,4 +1,4 @@
-## Egor Malko (tolisso)
+## Egor Malko
 
 ### About me
 Studied at math and physics orientied school.\
